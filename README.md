@@ -12,4 +12,4 @@ anaperceguini14@gmail.com.br
 
 @ dr_ana_r
 
-![image](https://github.com/perceguini13/PERCEGUINI13/assets/170019462/989fbedb-bd6c-4b2e-aa62-615618c7d9d3)
+https://media1.tenor.com/m/Em5BxiSLDNgAAAAd/dancinha-comemorando.gif
